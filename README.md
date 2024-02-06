@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AnbuCrow i guess?
+- 👀 I’m interested in many things...
+- 🌱 I’m currently learning C in school and it sucks :I
+- 💞️ I’m looking to collaborate on nothin rn
+- 📫 How to reach me send me an E-mail.. oh well no.. I will never read it anyway.. Discord: anbucrow
+- 😄 Pronouns: ??? Crow ???
+- ⚡ Fun fact: ☞ ᴄʀᴏᴡꜱ ᴄᴀɴ ʀᴇᴍᴇᴍʙᴇʀ ᴛʜᴇ ꜰᴀᴄᴇꜱ ᴏꜰ ɪɴᴅɪᴠɪᴅᴜᴀʟ ʜᴜᴍᴀɴꜱ.
